@@ -12,6 +12,11 @@ Where to find em
 * https://www.h-net.org/jobs/home.php
 * https://academicjobs.fandom.com/wiki/Academic_Jobs_Wiki
 
+### Postdocs
+* [Princeton Society of Fellows](https://sf.princeton.edu/about-us/news/2022-call-applications)
+* [Harvard Society of Fellows](https://socfell.fas.harvard.edu/)
+
+
 ## Subject Specific
 
 ### Anthropology Jobs Clearinghouse
